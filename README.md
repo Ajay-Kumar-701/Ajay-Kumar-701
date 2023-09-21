@@ -1,6 +1,6 @@
 - Hi, I’m Ajay Kumar
 - I’m interested in Oil Painting.
-- I’hv completed ...Full Stack Development(Mern).
+- I have completed my...Full Stack Development(Mern) program.
 - I’m looking to collaborate on Open Source Project.
 - I'M Looking For Help With Design....
 - Pronouns-He/His
