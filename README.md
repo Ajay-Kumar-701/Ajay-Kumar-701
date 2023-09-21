@@ -2,10 +2,12 @@
 - I’m interested in Oil Painting.
 - I’hv completed ...Full Stack Development(Mern).
 - I’m looking to collaborate on Open Source Project.
-- I'M Looking For Help With Design.
+- I'M Looking For Help With Design....
 - Pronouns-He/His
-- little Introverted Guy
-- How to Reach Me...   GitHub- @Ajay-Kumar-701   
+- How to Reach Me...
+- GitHub- @Ajay-Kumar-701
+- skype- https://join.skype.com/invite/xbGuN5TwISK8
+- LinkedIn- https://www.linkedin.com/in/ajay-kumar-979959255/   
 - 
 -
 
