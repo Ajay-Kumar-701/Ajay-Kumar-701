@@ -5,7 +5,7 @@
 - I'M Looking For Help With Design....
 - Pronouns-He/His
 - How to Reach Me...
-- GitHub- @Ajay-Kumar-701
+- GitHub- https://github.com/Ajay-Kumar-701/Ajay-Kumar-701/tree/main
 - skype- https://join.skype.com/invite/xbGuN5TwISK8
 - LinkedIn- https://www.linkedin.com/in/ajay-kumar-979959255/   
 - 
