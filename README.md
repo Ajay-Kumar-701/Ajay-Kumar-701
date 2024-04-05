@@ -7,7 +7,7 @@
 - How to Reach Me...
 - GitHub- https://github.com/Ajay-Kumar-701/Ajay-Kumar-701/tree/main
 - skype- https://join.skype.com/invite/xbGuN5TwISK8
-- LinkedIn- https://www.linkedin.com/in/ajay-kumar-979959255/   
+-   
 - 
 -
 
