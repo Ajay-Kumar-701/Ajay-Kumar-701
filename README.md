@@ -6,7 +6,9 @@
 - Pronouns-He/His
 - How to Reach Me...
 - GitHub- https://github.com/Ajay-Kumar-701/Ajay-Kumar-701/tree/main
+- Linkedin - https://www.linkedin.com/in/a-kumar-979959255/
 - skype- https://join.skype.com/invite/xbGuN5TwISK8
+- Email - ajayakumar7001@gmail.com
 -   
 - 
 -
